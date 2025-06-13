@@ -1,1 +1,0 @@
-# sigma-tutor-privacy-policy
